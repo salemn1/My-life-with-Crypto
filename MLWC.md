@@ -2,7 +2,7 @@
 ***
 ## 1. My journey with shitcoins.
 
-Everything started with safemoon, i found thit shitcoin very early but i didn't make much money because i didn't believe that much in him. So in short, i managed to make 200 bucks in addition to the initial investment, which was 600.
+Everything started with safemoon, i found this shitcoin very early but i didn't make much money because i didn't believe that much in him. So in short, i managed to make 200 bucks in addition to the initial investment, which was 600.
 
 I was thinking a lot about people who made a lot of money with safemoon (big shitcoin), so i started trying to found a new shitcoin to put some money in it and make a good profit. I found some shitcoins but they was scams but i managed to make my money back with everrise and make extra too.
 So, i put in everrise like 100-150 and i managed to make like 1000. Good profit, right ?
