@@ -14,7 +14,7 @@ As i said, i remained with 300 bucks, so i decided to look in real crypto coins 
 
 I managed to make a profit with these investments, the profit being $ 70 in a few days. 20 in cake and 50 in bpt, money rain baby. 💸💸💸
 
-I will create a table with profit, etc, everytime i write new stuff abouyt my life in crypto, so this it is the first one.
+I will create a table with profit, etc, everytime i write new stuff about my life in crypto, so this is the first one.
 
 
 |Name   | Investment | Profit | 
