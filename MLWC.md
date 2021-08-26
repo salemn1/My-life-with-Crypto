@@ -34,3 +34,19 @@ I will come back with new updates every time I do something in crypto.
 The quote of the day (24.08.2021) is:
 >In the business world, the rearview mirror is always clearer than the windshield.
 &copy;Warren Buffett.
+
+===================
+## Today is 26.08.2021
+
+[BTC](https://en.wikipedia.org/wiki/Bitcoin "Bitcoin") price is 47.329 $, and i think a correction will follow.
+I decided to take my money out of the [BPT](https://blackpool.finance/token "Blackpool Finance"), 150 bucks, and only let my money in cake, i have hope in cake. 
+
+So what is my strategy ? My strategy is to accumulate more bpt at low prices, i make 50 dollars profit, i take all out and i'm waiting for the price to go down, like as i do right now. I sold at 11-12 $ i think. right now the price is 8.55, and i'm waiting to catch a 7.
+
+With [CAKE](https://pancakeswap.finance/swap "Pancake Swap") I'm fine, the price has dropped a bit, along with btc. I have 118 right now staked for [TRX](https://tron.network/ "Tron"), because even if I made $ 1 or $ 2, maybe one day trx will be up af.
+
+So, this was my day, let’s hope everyone will make some money and that everyone will be healthy and happy.
+
+
+Just like a friend said:
+>Buy some shitcoin for someone and he can lose money one time. Learn him how to use Metamask and DEXes and he can lose forever.
