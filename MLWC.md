@@ -50,3 +50,18 @@ So, this was my day, let’s hope everyone will make some money and that everyon
 
 Just like a friend said:
 >Buy some shitcoin for someone and he can lose money one time. Learn him how to use Metamask and DEXes and he can lose forever.
+
+===================
+## Today is 03.09.2021
+
+I decided to sell everything i have in [BPT](https://blackpool.finance/token "Blackpool Finance") and [CAKE](https://pancakeswap.finance/swap "Pancake Swap") to buy an nft.
+
+I spent hours on opensea to find a decent collection of nfts and let's say, with future.
+In the end I found the [Lost Souls Sanctuary](https://opensea.io/collection/lostsoulssanctuary) collection. I stayed about 5 hours to get a lower gas fee and in the end I managed to pay $ 208 for a nft. I hope it was worth it.
+
+Why did I sell everything I had in coins and decide to buy a nft ?
+
+Given how high Bitcoin is in recent days, I think a big correction will follow, so I decided to move to nfts even if I don't have a lot of money. Here, if I'm a little lucky and the collection goes up in price, I made a decent bag.
+So that's about it, I'll be back with updates and new investments in the coming days.
+
+>Hope is a doctor for all misfortunes.
