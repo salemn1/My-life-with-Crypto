@@ -65,3 +65,20 @@ Given how high Bitcoin is in recent days, I think a big correction will follow, 
 So that's about it, I'll be back with updates and new investments in the coming days.
 
 >Hope is a doctor for all misfortunes.
+
+===================
+
+Today is 12.09.2021
+I started making money with NTFs, I bought several of the different collections and put them up for sale at double the price.
+
+I also discovered an nft racing game, you buy a car from the OpenSea from the REVV Racing collection and you are free to play at their tournaments, where there are many prizes. I bought a car for like 20 bucks and if i will sell that car i will doubled my money easy af.
+
+I also decided to keep my Soul from Lost Souls Sanctuary because they are making a game, and i saw today the price floor goes a up a little bit.
+
+Leaving nfts aside and returning to crypto, I put $ 55 in AVAX, and already in just one day I made a profit of $ 18. I want to thank a friend of mine because I initially put the money in NEAR, but he told me that it has more potential AVAX than NEAR because people are more interested in AVAX.
+
+If i will make some money with AVAX i will put some money in NEAR too because i think this project will blow up in the future.
+
+So that's about it.
+
+“The person who doesn't know where his next dollar is coming from usually doesn't know where his last dollar went.”
