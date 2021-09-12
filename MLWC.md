@@ -73,7 +73,7 @@ So that's about it, I'll be back with updates and new investments in the coming 
 I started making money with NTFs, I bought several of the different collections and put them up for sale at double the price.
 
 I also discovered an nft racing game, you buy a car from the [OpenSea](https://opensea.io/collection/revv-motorsport-inventory) from the [REVV Racing](https://www.revvracing.com/) collection and you are free to play at their tournaments, where there are many prizes.
-I bought a car for like 20 bucks and if i will sell that car i will doubled my money easy af.
+I bought a car for like 20 bucks and if i will sell that car i will double my money easy af.
 
 I also decided to keep my Soul from  [Lost Souls Sanctuary](https://opensea.io/collection/lostsoulssanctuary) because they are making a game, and i saw today the price floor goes a up a little bit.
 
